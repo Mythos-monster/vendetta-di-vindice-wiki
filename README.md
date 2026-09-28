@@ -1,1 +1,1 @@
-# vendetta-di-vindice-wiki-1
+# vendetta-di-vindice-wiki
